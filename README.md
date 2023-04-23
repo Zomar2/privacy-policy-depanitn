@@ -1,5 +1,4 @@
-# privacy-policy-depanitn
-# depani-privacy-policy-04-2023
+# privacy-policy-depanitn-04-2023
 
 We takes your privacy seriously. To better protect your privacy we provide this privacy policy notice explaining the way your personal information is collected and used.
 
